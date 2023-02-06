@@ -6,7 +6,8 @@
 
 ### Наталья Костина 
 -----
-![Наталья Костина](https://drive.google.com/file/d/1zShy4_83yvgzIqPQzNHob2WJVTqQGILu/view?usp=sharing)
+
+![IMG_8892_edited](https://user-images.githubusercontent.com/122474543/217064520-c60a8563-a3c9-44d7-b009-0460cff76c80.jpg)
 
 __Контактная информация__:
 
